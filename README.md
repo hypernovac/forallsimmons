@@ -1,5 +1,5 @@
 # forallsimmons
-all simmons için açılmıştır, başkaları kullanmasın lütfen !
+📣 It's open for all simmons, please don't let others use it! 👁‍🗨
 
 
 💻 Attack is ddos script 💻
